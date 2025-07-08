@@ -17,4 +17,5 @@
 资源站点整合资源：像JAVLibrary和Jable.tv等网站，聚集了大量日本AV资源，并提供在线观看功能。这些平台允许用户根据演员、影片编号、类型等多种筛选条件，快速找到自己感兴趣的影片。部分资源支持免费观看，且提供高清画质，播放流畅，适合喜欢清晰画面和高质量观看的用户。
 
 P2P下载平台：对于有一定下载经验的用户，Sukebei等种子分享平台提供免费的日本AV资源下载。虽然这些平台资源丰富，但下载时需要谨慎，确保文件来自可信来源，避免下载到含有病毒或非法内容的文件。
-<span style="display:none;">[Canonical link](）</span>
+
+<span style="display:none;">[Canonical link](https://github.com/july4562/45666 ）</span>
